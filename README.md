@@ -46,3 +46,9 @@
 
 ![HUAWEI Cloud V Virtualization Features 24](https://user-images.githubusercontent.com/93165498/145434693-0f90c70d-9605-4926-8e23-49f98bfe4752.jpg)
 
+![HUAWEI Cloud V Virtualization Features 25](https://user-images.githubusercontent.com/93165498/145434709-086fc498-476d-4b03-ad4a-3deac73dac0e.jpg)
+
+![HUAWEI Cloud V Virtualization Features 26](https://user-images.githubusercontent.com/93165498/145434748-ab9f8621-ade1-4120-a05a-f742cf6b2315.jpg)
+
+![HUAWEI Cloud V Virtualization Features 27](https://user-images.githubusercontent.com/93165498/145434773-a8fbdb0e-6387-4cdc-b21b-afcb41a99a20.jpg)
+
